@@ -1,4 +1,4 @@
-## Praktikum Modul 1
+## Praktikum Modul 2
 Kelompok D13
 - 05111840000094 Rafi Nizar Abiyyi
 - 05111740000192 Faishal Abiyyudzakir
